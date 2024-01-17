@@ -8,4 +8,4 @@ Everything is ready for all beginners willing to try or even to stay consistent 
 Feel free to ask or dm me on social@tafitanoel for any purposes. 
 
 
-This not a advice for any investment or any subsidiaries in financial market, I've wrote this project for an educational purposes only
+Wrning ! This is not an advice for any investment or any subsidiaries in financial market, I've wrote this project for an educational purposes only
